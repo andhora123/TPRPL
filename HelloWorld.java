@@ -1,0 +1,1 @@
+Hello, Saya Yusuf Eka Andora. Nim Saya 6306134098 . saya sangat menyukai praktikum RPL Modul 8 ini
